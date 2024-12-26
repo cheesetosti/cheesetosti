@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...okay, didn't knew that I was doing that
 - 💞️ I’m looking to collaborate on ...code
 - 📫 How to reach me ...my carrier pigeon died, sorry
-- 😄 Pronouns: ...grammar is already annoying
+- 😄 Pronouns: ...grammar is already annoying enough
 - ⚡ Fun fact: ...I'm not really a cheese tosti!
 
 <!---
